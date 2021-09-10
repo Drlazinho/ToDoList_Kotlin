@@ -34,6 +34,6 @@ As seguintes alterações que foram realizadas e as planejadas.
 
 🚀**Primeiro Resultado**
 
-![](https://media.giphy.com/media/lFeZaeCBss4WZdAqMT/giphy.gif)
+![](https://media.giphy.com/media/q1K7O4JxHKb4mm7Qky/giphy.gif?cid=790b7611c892a256b0efbb4e87fa7ef60859bab8f16661e2&rid=giphy.gif&ct=g)
 
 
